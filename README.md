@@ -1,4 +1,4 @@
-# Hola 👋🏻, Soy @ing_enuarlara.co
+# Hi 👋🏻, I´m @ing_enuarlara.co
 ---
 Mid-Senior BackEnd Developer, with solid training in the field of IT, with social commitment and research capacity, with a constant willingness to learn and adapt, capable of working in companies in the web development industry or in IT areas of any kind. productive sector, developing the role of web developer, Participate in development groups, assuming the role of developer within a work team.
 
